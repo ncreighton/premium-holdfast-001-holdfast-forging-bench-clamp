@@ -1,0 +1,2 @@
+# premium-holdfast-001-holdfast-forging-bench-clamp
+Tired of losing track of your holdfast forging projects and bench clamp configurations? The Holdfast Forging &amp; Bench Clamp Craft Lab brings order to your workshop chaos, turning scattered notes into a streamlined production pipeline.  This Notion template organizes every aspect of your holdfast forging and bench clamp crafting — from material inven
